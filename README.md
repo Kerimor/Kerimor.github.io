@@ -1,2 +1,0 @@
-# Kerimor.github.io
-Практика
